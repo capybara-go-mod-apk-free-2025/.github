@@ -1,4 +1,4 @@
-# Capybara Go Mod APK [Unlimited Money] Donload free Android Game 2025
+# Capybara Go Mod APK [Unlimited Money] Donwload free Android Game 2025
 
 ### What is Capybara Go?
 
@@ -6,7 +6,7 @@ Capybara Go is an engaging mobile game that combines the thrill of role-playing 
 
 The game's modded version, Capybara Go mod apk, unlocks even more benefits, including unlimited money, to help players level up quickly. Whether you're a casual gamer or an RPG enthusiast, Capybara Go offers an immersive experience that’s both strategic and relaxing.
 
-### Download Now:✌️ https://heyapks.com/
+### Download Now:✌️https://tinyurl.com/29cw4nfk
 
 ### Features of Capybara Go
 
