@@ -6,7 +6,7 @@ Capybara Go is an engaging mobile game that combines the thrill of role-playing 
 
 The game's modded version, Capybara Go mod apk, unlocks even more benefits, including unlimited money, to help players level up quickly. Whether you're a casual gamer or an RPG enthusiast, Capybara Go offers an immersive experience that’s both strategic and relaxing.
 
-### Download Now:✌️https://tinyurl.com/29cw4nfk
+### Download Now:✌️ https://tinyurl.com/3j4xd2p4
 
 ### Features of Capybara Go
 
